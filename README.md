@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **stgmonarch@gmail.com**
 
-- 📄 Know about my experiences **www.linkedin.com/in/monarch-saini-5a120a251](www.linkedin.com/in/monarch-saini-5a120a251**
+- 📄 Know about my experiences **www.linkedin.com/in/monarch-saini-5a120a251**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
